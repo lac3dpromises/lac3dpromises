@@ -12,7 +12,15 @@ hi im sai , and heres my full intro ^_^
 
 hello, as the intro suggests, im sai! . i like alot of fandoms, like limbus company, lobotomy corporation, library of runia, dandy's world, forsaken, alienstage, tr:ud, ihasafacelulz, rochas, roblox, the last guest, omori, orv, bsd, cookie run kingdom, vocaloid, phighting, onepiece ( fairly new  ) , chiikawa, five nights at freddies, regretavator, tf2, bang dream, d4dj, project sekai, sisters location, mlp:fim , sanrio, san-x, im inlove with the villaness, the guy she was interested in wasnt a guy at all, bfbiom, bfb, bfdi, tpot, dreamgame / frozen soul, nso and moree ! ( only adding recent 1s )
 
-i have adhd n dyslexsia and im usually seen around pt spawn, w/ @vine-berry - @BUTCHERS-VANITY - @ksnginene - @gereosityscrapes - @stargrrrrll and more ! ( ruru , rain , and cero ur in ts too )
+i have adhd n dyslexsia and im usually seen around pt spawn, w/ @vine-berry - @BUTCHERS-VANITY - @ksnginene - @gereosityscrapes - @stargrrrrll and more ! ( ruru , rain , ur in ts too )
+
+i make A TON of ocs, most recent one being an umamusume oc named hagdang bato! a bay horse w a white star that has won the philracom triple crown in 2012 and the pcso presidential gold
+cup champion in 2012! more abt hagdang bato will be linked below u 3 u
+
+( https://en.wikipedia.org/wiki/Hagdang_Bato
+
+i draw. yes i draw hi int if u draw too HI HI HI HIIIIIIIIII
+
 
 im a cool person n i dont bite, although if ur 13- i reccomend to be cautious, if u are sensitive to kys joke i suggest not interacting
 
