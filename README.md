@@ -15,9 +15,8 @@ hello, as the intro suggests, im sai! . i like alot of fandoms, like limbus comp
 i have adhd n dyslexsia and im usually seen around pt spawn, w/ @vine-berry - @BUTCHERS-VANITY - @ksnginene - @gereosityscrapes - @stargrrrrll and more ! ( ruru , rain , ur in ts too )
 
 i make A TON of ocs, most recent one being an umamusume oc named hagdang bato! a bay horse w a white star that has won the philracom triple crown in 2012 and the pcso presidential gold
-cup champion in 2012! more abt hagdang bato will be linked below u 3 u
+cup champion in 2012! [more abt hagdang bato](https://en.wikipedia.org/wiki/Hagdang_Bato)
 
-( https://en.wikipedia.org/wiki/Hagdang_Bato
 
 i draw. yes i draw hi int if u draw too HI HI HI HIIIIIIIIII
 
