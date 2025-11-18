@@ -3,4 +3,4 @@
 </p>
 
 <p align="center">
-<img src="https://postimg.cc/v1ZWDWbJ"/>
+<img src="https://postimg.cc/HrVFk8Vc"/>
