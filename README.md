@@ -3,4 +3,3 @@
 </p>
 
 <p align="center">
-<img src="https://postimg.cc/HrVFk8Vc"/>
