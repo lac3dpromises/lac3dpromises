@@ -1,5 +1,5 @@
 <p align="center">
-<img src=https://c.tenor.com/kU74mZ4t-N0AAAAd/tenor.gif>
+<img src=https://i.ytimg.com/vi/M7VSEZOQIlg/mqdefault.jpg>
 </p>
 
 <p align="center">
